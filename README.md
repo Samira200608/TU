@@ -1,2 +1,2 @@
-# TU
+# TIU
 Turizm in Uzbekistan
